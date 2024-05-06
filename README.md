@@ -1,2 +1,2 @@
-Ломакина Елизавета 221-323(221-322)
-https://disk.yandex.ru/d/98DuiF8VQMTbCw 
+Цымбал Илья 221-322
+https://drive.google.com/drive/folders/1nZreOCqxSFzPMbHC7VQLZqwjBSJi7VC9?usp=drive_link
